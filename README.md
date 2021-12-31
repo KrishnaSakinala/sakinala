@@ -1,5 +1,4 @@
 Hi there, I'm Krishna 👋
-Website Twitter Follow
 
 I'm a Tester, and Teacher!!
 
